@@ -1,1 +1,0 @@
-# auliaarif.github.io
